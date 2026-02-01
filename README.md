@@ -8,4 +8,4 @@ Reflexive Journal
 
 
 Reading Tips:
-- Read, but reflect to make sense out of the reading in your own way!! 
+- Read, but reflect to make sense out of the reading in your own way!!  VVIP!!
