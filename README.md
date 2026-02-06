@@ -10,3 +10,4 @@ Reflexive Journal
 Reading Tips:
 - Read, but reflect to make sense out of the reading in your own way!!  VVIP!!
 - The Spacing Effect!!
+- Reading like a PRO: The as-if Business Workflow method
