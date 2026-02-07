@@ -11,5 +11,5 @@ Reading Tips:
 - Read, but reflect to make sense out of the reading in your own way!!  VVIP!!
 - The Spacing Effect!!
 - Reading like a PRO: The as-if Business Workflow method!
-- Listen to Speechify read paper to me as if I am listening to a radio.
+- Listen to Speechify read paper to me as if I am listening to a radio. Listening without the intention of taking note at first.
    
