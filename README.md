@@ -1,5 +1,7 @@
 # Reflexive-Journal
-Note: I am keeping this here, to force and challenge myself to practice reflections often and listen to my inner world as I receive trainings from my teachers/professors.
+Note: If you find my reflexive Journal, it means you have just gotten access to one of those things that keeps me going. And, I am keeping it here, to force and challenge myself to practice reflections often and listen to my inner world as I receive trainings from my teachers/professors.
+
+
 
 - My Existing: Begin with "End in Mind".
 - My New Mantra: Plan, then EXECUTE.
@@ -12,6 +14,8 @@ Reading Tips:
 - The Spacing Effect!!
 - Reading like a PRO: The as-if Business Workflow method!
 - Listen to Speechify read paper to me as if I am listening to a radio. Listening without the intention of taking note at first. Just to trick the brain and get into reading!!
+
+
 
 Feb 9, 2026:
 - Be organized, that's the SECRET
