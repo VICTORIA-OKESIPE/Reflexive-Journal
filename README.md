@@ -21,6 +21,7 @@ Feb 9, 2026:
 - Be organized, that's the SECRET
 - Do the work, the orginal craft!
 - Be calm, and not overly excited!
+- Start something, finish it!!
 
 
    
