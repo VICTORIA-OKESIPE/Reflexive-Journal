@@ -22,6 +22,7 @@ Feb 9, 2026:
 - Do the work, the orginal craft!
 - Be calm, and not overly excited!
 - Start something, finish it!!
+- Coherence & Consistency
 
 
    
