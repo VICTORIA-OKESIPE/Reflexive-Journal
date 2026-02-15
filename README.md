@@ -24,7 +24,7 @@ Feb 9, 2026:
 - Start something, finish it!!
 - Coherence & Consistency
 - Timing Activities
-- Starting Task Earl
+- Starting Task Early
 
 
    
