@@ -23,6 +23,8 @@ Feb 9, 2026:
 - Be calm, and not overly excited!
 - Start something, finish it!!
 - Coherence & Consistency
+- Timing Activities
+- Starting Task Earl
 
 
    
