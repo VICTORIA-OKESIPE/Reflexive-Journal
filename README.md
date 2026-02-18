@@ -1,5 +1,5 @@
 # Reflexive-Journal
-Note: If you find my reflexive Journal, it means you have just gotten access to one of those things that keeps me going. And, I am keeping it here, to force and challenge myself to practice reflections often and listen to my inner world as I receive trainings from my teachers/professors.
+Note: If you find my reflexive Journal, it means you have just gotten access to one of those things that keeps me going. And, I am keeping it here, to force and challenge myself to practice reflections more often and listen to my inner world as I receive trainings from my teachers/professors during this PhD journey.
 
 
 
