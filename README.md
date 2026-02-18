@@ -38,4 +38,8 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Theory Building is a craft
 - The Spiral Model (= Read, reflect, and write) => produces the essential ions (erudition, motivation, imagination and cohesion) of theory building.
 
-   
+
+
+## Words of Wisdom from Guy Paré
+- When the door is open, seive the opportunity!
+
