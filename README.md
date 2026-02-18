@@ -42,4 +42,5 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 ## Words of Wisdom from Guy Paré
 - When the door is open, seive the opportunity!
+- It's NOT the quantity, it's the quality. Context: It might only need you to take one idea from a conference.
 
