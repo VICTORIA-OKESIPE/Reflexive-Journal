@@ -22,13 +22,16 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Be organized, that's the SECRET
 - Do the work, the orginal craft!
 - Be calm, and not overly excited!
+- Be gentle with yourself
+- Be kind to others
 - Start something, finish it!!
 - Coherence & Consistency
 - Timing Activities
 - Starting Task Early
 - The Future of work
-- Get yourself, get busy with your time
 - Give in to what the process requires
+- Get yourself engaged, get busy with your time
+- Be proactive about making your learning experience a balanced one!!
 
 
 ## Theory Building
