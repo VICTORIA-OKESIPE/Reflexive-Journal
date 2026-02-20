@@ -75,4 +75,5 @@ If you find my reflexive Journal, it means you have just gotten access to one of
   
 
 **Note:** The practical realities of completing a PhD. While many assume intelligence determines success, the actual predictors are tenacity, resilience to setbacks, your advisor relationship, and self-organization. A successful PhD produces interesting, novel research with a promising future, but getting there requires managing a years-long process of independent research, writing, and defending your work. Goal: to develop the organizational and psychological skills that actually matter for completing a strong dissertation. (~ Virginia Leavell)
-Question: "how to structure short and long-term timelines".
+
+**Question:** "how to structure short and long-term timelines".
