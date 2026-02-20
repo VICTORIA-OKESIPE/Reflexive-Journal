@@ -65,6 +65,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 -   Having a good relationship with your advisor (this is obvious a two-way relational thing) (figure out how you can work with them productively).
 - 2 Objectives overall during your PhD:
 -   Collect a ton of super high quality data (useful for references when doing job interviews)
+-   Read deeply & comprehensively (AI is _not_ your friend here)
 
 **Note:** This seminar addresses the practical realities of completing a PhD. While many assume intelligence determines success, the actual predictors are tenacity, resilience to setbacks, your advisor relationship, and self-organization. A successful PhD produces interesting, novel research with a promising future—but getting there requires managing a years-long process of independent research, writing, and defending your work. Drawing on my experience as a recent PhD graduate (2022) and my work with other doctoral students, I'll help you reflect on and improve your approach. We'll cover how to structure short and long-term timelines, identify essential tools and practices, and workshop specific challenges you're facing in your program. The goal is to develop the organizational and psychological skills that actually matter for completing a strong dissertation.
 
