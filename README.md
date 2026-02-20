@@ -52,3 +52,9 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - When the door is open, seive the opportunity!
 - It's NOT the quantity, it's the quality. Context: It might only need you to take one idea from a conference.
 
+
+
+## Advance from Virginia Leavell - How to PhD
+- Pursue & Create the idea you want (e.g., reading group)
+- Get this Mentality: You are in the Driver's seat NOW
+
