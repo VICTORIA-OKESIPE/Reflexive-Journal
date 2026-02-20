@@ -34,6 +34,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Be proactive about making your learning experience a balanced one!!
 - Be resilient
 - Start something, Finish it!
+- Learn to talk to people, and be a good team member (someone people wnats to work with).
 
 
 ## Theory Building
