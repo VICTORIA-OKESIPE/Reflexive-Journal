@@ -39,6 +39,9 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Staying determined to achieve goals
 - Planning ahead and respecting plans
 
+
+
+
 ## Theory Building
 - Theory Building is a craft
 - The Spiral Model (= Read, reflect, and write) => produces the essential ions (erudition, motivation, imagination and cohesion) of theory building.
