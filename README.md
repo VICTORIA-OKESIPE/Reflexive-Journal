@@ -35,6 +35,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Be resilient
 - Start something, Finish it!
 - Learn to talk to people, and be a good team member (someone people wnats to work with).
+- Setting realistic goals per day
 
 
 ## Theory Building
