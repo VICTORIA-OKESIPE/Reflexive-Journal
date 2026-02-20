@@ -52,10 +52,17 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - When the door is open, seive the opportunity!
 - It's NOT the quantity, it's the quality. Context: It might only need you to take one idea from a conference.
 
-Note: This seminar addresses the practical realities of completing a PhD. While many assume intelligence determines success, the actual predictors are tenacity, resilience to setbacks, your advisor relationship, and self-organization. A successful PhD produces interesting, novel research with a promising future—but getting there requires managing a years-long process of independent research, writing, and defending your work. Drawing on my experience as a recent PhD graduate (2022) and my work with other doctoral students, I'll help you reflect on and improve your approach. We'll cover how to structure short and long-term timelines, identify essential tools and practices, and workshop specific challenges you're facing in your program. The goal is to develop the organizational and psychological skills that actually matter for completing a strong dissertation.
+
 
 
 ## Advance from Virginia Leavell - How to PhD
 - Pursue & Create the idea you want (e.g., reading group)
 - Get this Mentality: You are in the Driver's seat NOW
+- Qualities of successful PhD students (intelligence is weirdly not the most important quality!!)
+-   Its about: Tenancity & Resiience
+-   Authentic curiosity about the world
+-   Working a reagulat schedule and completing things
+-   Having a good relationship with your advisor (this is obvious a two-way relational thing)
+
+**Note:** This seminar addresses the practical realities of completing a PhD. While many assume intelligence determines success, the actual predictors are tenacity, resilience to setbacks, your advisor relationship, and self-organization. A successful PhD produces interesting, novel research with a promising future—but getting there requires managing a years-long process of independent research, writing, and defending your work. Drawing on my experience as a recent PhD graduate (2022) and my work with other doctoral students, I'll help you reflect on and improve your approach. We'll cover how to structure short and long-term timelines, identify essential tools and practices, and workshop specific challenges you're facing in your program. The goal is to develop the organizational and psychological skills that actually matter for completing a strong dissertation.
 
