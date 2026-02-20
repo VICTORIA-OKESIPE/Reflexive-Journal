@@ -58,23 +58,22 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 ## Seminar with Virginia Leavell - How to PhD
 - Pursue & Create the idea you want (e.g., reading group)
 - Get this Mentality: You are in the Driver's seat NOW
+- Do good work!!
   
--# Qualities of successful PhD students (intelligence is weirdly not the most important quality!!)
+### Qualities of successful PhD students (intelligence is weirdly not the most important quality!!)
 -   Its about: Tenancity & Resiience
 -   Authentic curiosity about the world (is you are really interested in something, that is really important!!)
 -   Working on a reagular schedule and completing things
 -   Having a good relationship with your advisor (this is obvious a two-way relational thing) (figure out how you can work with them productively)
   
--# 2 Objectives overall during your PhD:
+### 2 Objectives overall during your PhD:
 -   Collect a ton of super high quality data (useful for references when doing job interviews)
 -   Read deeply & comprehensively (AI is _not_ your friend here)
   
--# Essential Tools & Practices:
+### Essential Tools & Practices:
 -   Use zotero to take future-accessible notes when reading (for classes; for comps exam)
 -   Write on paper (great/ best ideas come when you are not sitting in front of a computer)
 -   Get a Hobby
-  
-- Do good work!!
 
   
 
