@@ -33,6 +33,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Get yourself engaged, get busy with your time
 - Be proactive about making your learning experience a balanced one!!
 - Be resilient
+- Start something, Finish it!
 
 
 ## Theory Building
