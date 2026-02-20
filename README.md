@@ -37,6 +37,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Learn to talk to people, and be a good team member (someone people wnats to work with).
 - Setting realistic goals per day
 - Staying determined to achieve goals
+- Planning ahead and respecting plans
 
 ## Theory Building
 - Theory Building is a craft
