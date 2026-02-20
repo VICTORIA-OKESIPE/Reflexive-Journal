@@ -70,6 +70,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 -   Use zotero to take future-accessible notes when reading (for classes; for comps exam)
 -   Write on paper (great/ best ideas come when you are not sitting in front of a computer)
 -   Get a Hobby
+- Do good work!!
 
   
 
