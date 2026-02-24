@@ -81,4 +81,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 **Question:** "How to structure short and long-term timelines."
 
 ### Action:
-
+- Do 9
