@@ -80,5 +80,8 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 **Question:** "How to structure short and long-term timelines."
 
-### Action:
+### Test-run This in March:
 - Do 9 - 5
+- Time all activities
+- Punctuality
+  
