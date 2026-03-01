@@ -85,4 +85,3 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Do 9 - 5
 - Time all activities
 - Punctuality
-
