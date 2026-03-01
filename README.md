@@ -87,9 +87,5 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Punctuality
 
 
-### Test-run This in March:
-- Do 9 - 5
-- Time all activities
-- Punctuality
 
 
