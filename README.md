@@ -82,6 +82,6 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 
 ### Test-run This in March:
-- Do 9 - 5 (respecting this for wellbeing sake)
-- Time all activities
+- Do 9 - 5 (the why: respecting this for wellbeing sake)
+- Time all activities (this helps 
 - Punctuality
