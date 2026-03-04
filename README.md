@@ -82,7 +82,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 
 ### Test-run This in March:
-- Do 9 - 5 (the why: respecting this for wellbeing sake).
+- Do 9 - 5 (wellbeing)
 - Time all activities (why: this helps reduce anxiety about how to complete set todo-lists/target.
 - Punctuality
 - Meeting deadlines.
