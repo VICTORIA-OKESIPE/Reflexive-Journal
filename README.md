@@ -82,8 +82,8 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 
 ### Test-run This in March:
-- Do 9 - 5 (wellbeing)
-- Timed activities 
-- Punctuality
+- Do 9 - 5 (wellbeing).
+- Timed activities.
+- Punctuality.
 - Meeting deadlines.
-- Being kind towards myself and others.
+- Being kind self et al.
