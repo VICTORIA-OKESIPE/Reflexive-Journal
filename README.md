@@ -87,4 +87,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Punctuality.
 - Meeting deadlines.
 - Being kind self et al.
-- Writing style: Write Introduction last.
+- Writing style: Write Introduction last (to avoid feeling repetitive if you write Intro. first).
