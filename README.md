@@ -82,9 +82,9 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 
 ### Week 1 (March):
-- Do 9 - 5 (wellbeing) (Outcome: didnot work yet, still struggling with this.
+- Do 9 - 5 (wellbeing) (Outcome: didnot work yet, still struggling with this).
 - Timed activities.
 - Punctuality.
 - Meeting deadlines.
 - Being kind self et al.
-- Writing style 
+- Writing style: Write Introduction last.
