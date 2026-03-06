@@ -90,3 +90,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Writing style: Write Introduction last (to avoid feeling repetitive if you write Intro. first).
 - Lesson's learnt: Think Investment Justification: Stategic Positions or Arguments.
 - Lessons learnt: The Power of Preparing Hard (overpreparing in a strategic way - leveraging the lessons learnt in class that resonates with you).
+- Lessoms learnt: Prepare such that you have a sound argument/justification for why everything else can wait while you focus on this one thing.
