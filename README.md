@@ -88,3 +88,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Meeting deadlines.
 - Being kind self et al.
 - Writing style: Write Introduction last (to avoid feeling repetitive if you write Intro. first).
+- Lesson's learnt: Think Investment Justification: Stategic Positions or Arguments.
