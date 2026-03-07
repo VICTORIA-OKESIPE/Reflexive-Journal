@@ -92,3 +92,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Lessons learnt: The Power of Preparing Hard (overpreparing in a strategic way - leveraging the lessons learnt in class that resonates with you).
 - Lessoms learnt: Prepare such that you have a sound argument/justification for why everything else can wait while you focus on this one thing. Think about it this way: what do I have control over versus what I do not have control over.
 - Lessons learnt: IT Investment strategic positions/justifications versus Business value realization.
+- Starting your day early, 
