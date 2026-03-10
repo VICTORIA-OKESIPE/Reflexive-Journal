@@ -106,4 +106,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Weekly buzzword: Artificial language, Scrutable, Ambiguity, Clarify, Conceptual/Operational Definition
 - Dear Self, thank your stars for coming across this email today. The email is about a scholarship, although I am NOT eligible, but what I learnt is invaluable. And here's what I learnt: 5 tips to make your application shine. They are simple, but true...every single letter in the wordings of the tips taught me something.
 - 1. It's not just about grades. stand out in ways that have nothing to do with grades - social involvement, volunteering, perseverance matters!
-- 2. Be yourself. Reviewers want to know the person behind the application, so be sure to showcase your personality and talk about what makes you unique!
+- 2. Be yourself. Reviewers want to know the person behind the application, so be sure to showcase your personality and talk about what makes you unique (without overstating it)!
