@@ -10,6 +10,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 
 
+
 ## Reading Tips
 - Read. Reflect. Write.
 - Read, but reflect to make sense out of the reading in your own way!!  VVIP!!
