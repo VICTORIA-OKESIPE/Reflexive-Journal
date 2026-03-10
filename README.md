@@ -18,6 +18,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 
 
+
 ## Others
 - Be organized, that's the SECRET
 - Do the work, the orginal craft!
