@@ -93,3 +93,9 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - Lessoms learnt: Prepare such that you have a sound argument/justification for why everything else can wait while you focus on this one thing. Think about it this way: what do I have control over versus what I do not have control over.
 - Lessons learnt: IT Investment strategic positions/justifications versus Business value realization.
 - Starting your day early, but planning the new day, at least a day before.
+
+
+### Week 2 (March)
+- Punctuality
+- Now realizing the value of Speechify (Multitasking is possible with speechify)
+- Weekly buzzword: Artificial language, Scrutable, Ambiguity, Clarify, Conceptual/Operational Definition
