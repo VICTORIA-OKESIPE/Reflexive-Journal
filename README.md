@@ -122,4 +122,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - 2. Problem-solving
 - 3. Time Management: PrioritiIng tasks and staying focused on the most urgent ones/issue
 - 4. Growth Mindset
-- 5. Diverse Perspectives
+- 5. Diverse Perspectives: The only way to go far is together. By having respect for each other and encouraging diverse perspectives and mutual respect, you'll undoubtedly find multiple and better solutions to security problems.
