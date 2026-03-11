@@ -119,7 +119,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 - Transferable & TEchnical Cybersecurity Skills
 - 1. Communication
-  2. Problem-solving
-  3. Time Management: PrioritiIng tasks and staying focused on the most urgent ones/issue
-  4. Growth Mindset
-  5. Diverse Perspectives
+- 2. Problem-solving
+- 3. Time Management: PrioritiIng tasks and staying focused on the most urgent ones/issue
+- 4. Growth Mindset
+- 5. Diverse Perspectives
