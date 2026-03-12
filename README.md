@@ -123,7 +123,11 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - 3. Time Management: PrioritiIng tasks and staying focused on the most urgent ones/issue
 - 4. Growth Mindset
 - 5. Diverse Perspectives: The only way to go far is together. By having respect for each other and encouraging diverse perspectives and mutual respect, you'll undoubtedly find multiple and better solutions to security problems.
-
+ 
+- About Deadlines
+- 1. Focuing on what is due first
+- 2. No Laptop rule to craft slide design inspo
+  3. Design Slides
 
 
 ### Week 3 (March)
