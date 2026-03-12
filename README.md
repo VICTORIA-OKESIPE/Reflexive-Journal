@@ -131,4 +131,8 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - 4. Practice !!!
 
 
+- The Role of Project Managers in Software Development:
+- 1. Ensure customer satisfaction
+  2. 
+
 ### Week 3 (March)
