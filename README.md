@@ -133,6 +133,8 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 - The Role of Project Managers in Software Development:
 - 1. Ensure customer satisfaction (shakeholders: sponsors, team members, recipients of deliverables)
-  2. 
+  2. Be a CheerLeader
+  3. Be the GateKeeper
+  4. Be the PaperPusher (a lot of documentations !!!)
 
 ### Week 3 (March)
