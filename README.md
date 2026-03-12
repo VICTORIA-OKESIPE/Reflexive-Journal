@@ -139,5 +139,9 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 
 - Lessons of an Ethics/Moral Training
-1. Keep in mind: showing respect and considerations for others
+1. Keep in mind: showing respect and considerations for others.
+2. Be adaptable and excited to contribute to evolving team priorities rather than coming in with a fixed agenda
+
+
+
 ### Week 3 (March)
