@@ -137,4 +137,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
   3. Be the GateKeeper
   4. Be the PaperPusher (a lot of documentations !!!)
 
+
+- Lessons of an Ethics/Moral Training
+1. Keep in mind: showing respect and considerations for others
 ### Week 3 (March)
