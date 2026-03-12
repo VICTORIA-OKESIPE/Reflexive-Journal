@@ -128,6 +128,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - 1. Focuing on what is due first
 - 2. No Laptop rule to craft slide design inspo
   3. Design Slides
+  4. Practice !
 
 
 ### Week 3 (March)
