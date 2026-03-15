@@ -146,6 +146,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - TIMED ACTIVITIES WORKS QUITE WELL
 - TRICKING MY BRAIN TO GET INTO DEEP WORK...HOW?? STILL FIGURING OUT!!
 - LEARNING HOW TO BE CONSISTENT
+- HAVING FUN WHILE LEARNING
 
 
 
