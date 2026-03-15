@@ -148,7 +148,8 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - LEARNING HOW TO BE CONSISTENT
 - HAVING FUN WHILE LEARNING
 - PLAN & RESPECT PLANS
-- Technology-less preparation or reading is helpful for deepwork.
+- Technology-less preparation or reading is helpful for deepwork. It works well, especially if you need to bring your A game.
+- 
 
 
 
