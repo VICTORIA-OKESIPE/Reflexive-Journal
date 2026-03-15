@@ -147,6 +147,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - TRICKING MY BRAIN TO GET INTO DEEP WORK...HOW?? STILL FIGURING OUT!!
 - LEARNING HOW TO BE CONSISTENT
 - HAVING FUN WHILE LEARNING
+- PLAN & RESPECT PLANS
 
 
 
