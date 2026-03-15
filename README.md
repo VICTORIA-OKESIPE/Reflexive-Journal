@@ -148,6 +148,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 - LEARNING HOW TO BE CONSISTENT
 - HAVING FUN WHILE LEARNING
 - PLAN & RESPECT PLANS
+- Technology-less preparation or reading is helpful for deepwork.
 
 
 
