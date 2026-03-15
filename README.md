@@ -143,6 +143,9 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 2. Be adaptable and excited to contribute to evolving team priorities rather than coming in with a fixed agenda.
 3. Be skilled at writing up and communicating your results (even if NULL, or unexpected).
 
+- TIMED ACTIVITIES WORKS QUITE WELL
+- TRICKING MY BRAIN TO GET INTO DEEP WORK...HOW?? STILL FIGURING OUT!!
+
 
 
 ### Week 3 (March)
