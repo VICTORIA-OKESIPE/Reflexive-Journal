@@ -154,3 +154,5 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 
 ### Week 3 (March)
+1. Show up!!
+2. Show up, prepared, professional, and reliable!!
