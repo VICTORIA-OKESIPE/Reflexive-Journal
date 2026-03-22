@@ -158,3 +158,9 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 2. Show up, prepared, professional, and reliable!!
 3. Being Intentional
 4. Communicatin=on skill is a VVIP
+5. Knowing your Onions is fundamental. Being a Team Player is critical.
+
+
+
+
+### Week 4 (March)
