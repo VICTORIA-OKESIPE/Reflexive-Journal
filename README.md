@@ -164,3 +164,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 
 ### Week 4 (March)
+1. Starting your day with your most difficult task...the one you are liable to avoid.
