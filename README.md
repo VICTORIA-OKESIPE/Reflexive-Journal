@@ -166,3 +166,13 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 ### Week 4 (March)
 1. Starting your day with your most difficult task...the one you are liable to avoid.
 2. Seeking accountability (tech-induced reminder or human)
+
+
+### Week 1 (April)
+1. Doing more than what is required.
+2. Pouring yourself into what you do.
+3. Lessons from Funke Akindele I wanna keep:
+4.   Intentionality
+2.   Relatable stories (stories that everyone will see themselves in it)
+3.   Quality
+4.   Consistency 
