@@ -180,4 +180,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 
 ### Week 4 (April)
 1. Knowing where you draw the line is key (knowing your 
-2. gg
+2. ggg
