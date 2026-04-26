@@ -175,4 +175,9 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 4.   Intentionality
 2.   Relatable stories (stories that everyone will see themselves in it)
 3.   Quality
-4.   Consistency 
+4.   Consistency
+
+
+### Week 4 (April)
+1. Knowing where you draw the line is key (knowing your 
+2. 
