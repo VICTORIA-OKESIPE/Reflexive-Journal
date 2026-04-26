@@ -181,3 +181,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 ### Week 4 (April)
 1. Identifying your non-negotiables for work and/or interpersonal relationships
 2. The role of trusting God
+3. People & Time Management
