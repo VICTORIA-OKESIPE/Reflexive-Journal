@@ -184,3 +184,7 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 3. People & Time Management
 4. Having inner circles that you discuss your concerns
 5. Leveraging your strengths to address your weaknesses
+
+### Week 1 (May)
+Advice from G.V.:
+1. Do the reading yourself, then take notes.
