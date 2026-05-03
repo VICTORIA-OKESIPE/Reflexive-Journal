@@ -189,3 +189,4 @@ If you find my reflexive Journal, it means you have just gotten access to one of
 Advice from G.V.:
 1. Do the reading yourself, then take notes.
 2. Plan, and respect the plan.
+3. Read indepth, 
