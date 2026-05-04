@@ -190,3 +190,8 @@ Advice from G.V.:
 1. Do the reading yourself, then take notes.
 2. Plan, and respect the plan.
 3. A Paper: Read indepth, Read multiple times, have your own understanding, link it to your own work.
+
+
+### May 3rd (My Birthday)
+1. Had time to eat, reflect, enjoy with family and friends.
+2. And fir the first time in many years, I completed responding to my birthday messages same day.
