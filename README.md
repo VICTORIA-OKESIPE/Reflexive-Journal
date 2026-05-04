@@ -194,7 +194,7 @@ Advice from G.V.:
 
 ### May 3rd (My Birthday)
 1. Had time to eat, reflect, enjoy with family and friends.
-2. And fir the first time in many years, I completed responding to my birthday messages same day.
+2. And for the first time in many years, I completed responding to my birthday messages same day.
 
 ### May 4th (Goal: Search Terms, Search Strategy, Title/Keywords/Abstract Screening).
 
