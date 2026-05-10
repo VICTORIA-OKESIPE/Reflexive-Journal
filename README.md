@@ -200,5 +200,5 @@ Advice from G.V.:
 
 ### May 9th
 1. Important to think about daily goals like, I MUST NOT CARRY OVER this task to the next day.
-2. Finding & Activating what the auto mode for each task is.
+2. Finding & Activating auto mode for each task is.
 
