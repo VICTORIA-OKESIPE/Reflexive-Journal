@@ -198,3 +198,6 @@ Advice from G.V.:
 
 ### May 4th (Goal: Search Terms, Search Strategy, Title/Keywords/Abstract Screening).
 
+### May 9th
+1. Important to think about daily goals like, I MUST NOT CARRY OVER this task to the next day.
+
