@@ -204,5 +204,6 @@ Advice from G.V.:
 
 ### May 10th
 1. The Strength of Consistency.
-2. 
+2.
+3.
 
