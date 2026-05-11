@@ -202,3 +202,6 @@ Advice from G.V.:
 1. Important to think about daily goals like, I MUST NOT CARRY OVER this task to the next day.
 2. Finding & Activating auto mode for each task.
 
+### May 10th
+1. The Strength of Consistency.
+
