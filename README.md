@@ -207,3 +207,11 @@ Advice from G.V.:
 2.
 3.
 
+
+### May 20th
+1. Being critical when reading (often spoken about, but not enough said the why)
+
+
+### May 21st
+1. Read it critically, identify where it belongs, dump it there!!
+Why Dump (Rationale): The details might be useful later, so don’t abstract now!!
